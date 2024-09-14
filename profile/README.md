@@ -1,4 +1,8 @@
 ## Hi there 👋
+![Tri-Chandra Research Group](https://github.com/user-attachments/assets/63cd4e31-0367-4892-963b-45c0346b0c18)
+----------------------------
+![444480381_122104767482331503_7412355840383731827_n](https://github.com/user-attachments/assets/c9cb7946-a62d-432c-b3d8-04348bcc5c18)
+----------------------------------------------
 
 <!--
 
